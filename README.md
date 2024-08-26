@@ -7,6 +7,7 @@ jimfrank324@gmail.com
 
 ## info
 
-Mini Excavator, Crawler Excavator, Excavation Machinery, Ride-On Electric Excavator with Cab for Garden, Farm, Park, Road - Perfect for Vegetable Greenhouse Digging, Bulldozing (1)
-
-Mini Excavator, Small Crawler Excavator, Small Digger, for Digging, Drilling, Bull-Dozing, Ditch Cleaning, Small Excavation (
+```
+Mini Excavator, Crawler Excavator, Excavation Machinery, Ride-On Electric Excavator with Cab for Garden, Farm, Park, Road - Perfect for Vegetable Greenhouse Digging, Bulldozing 
+Mini Excavator, Small Crawler Excavator, Small Digger, for Digging, Drilling, Bull-Dozing, Ditch Cleaning, Small Excavation
+```
